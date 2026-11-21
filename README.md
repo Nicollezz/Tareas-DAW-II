@@ -1,1 +1,0 @@
-# DesarolloMovil-Q42026
